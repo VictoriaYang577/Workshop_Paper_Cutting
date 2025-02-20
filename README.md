@@ -10,7 +10,7 @@ Welcome to the Chinese New Year Paper-Cutting Workshop! In this hands-on activit
 
 Window Flowers are traditional Chinese paper cuttings that originated during the Han Dynasty (206 BCE–220 CE). They're commonly used to decorate windows during Lunar New Year, symbolizing prosperity, longevity, and happiness.
 
-# Popular Motifs
+## Popular Motifs
 
 "Fu" (福): Represents blessings and good fortune.
 
