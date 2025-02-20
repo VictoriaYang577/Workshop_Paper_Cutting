@@ -97,4 +97,8 @@ Collaborate to create unique window flowers.
 Share the meaning and symbolism of your chosen designs with your partner.
 
 # Additional Resources
+[![Watch the Video Tutorial]([https://img.youtube.com/vi/YOUR_VIDEO_ID/0.jpg)](https://www.youtube.com/watch?v=YOUR_VIDEO_ID](https://www.youtube.com/watch?v=GGJ9vRq2d9g)
+
+
+
 
