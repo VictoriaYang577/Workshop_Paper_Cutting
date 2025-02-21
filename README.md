@@ -4,7 +4,7 @@
 
 Welcome to the Chinese New Year Paper-Cutting Workshop! In this hands-on activity, you'll explore the traditional Chinese folk art of "Window Flowers." Celebrate cultural heritage and express your creativity by creating beautiful decorations to brighten your space.
 
-[![Watch the Video](https://img.youtube.com/vi/t5RlTSnAsEc/0.jpg)](https://www.youtube.com/watch?v=t5RlTSnAsEc)
+[![Watch from 4:44](https://img.youtube.com/vi/TIqWNWvxFew/0.jpg)](https://www.youtube.com/watch?v=TIqWNWvxFew&t=284s)
 
 # Introduction to Paper Cutting
 
