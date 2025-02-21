@@ -16,6 +16,7 @@ Today, paper cutting covers many themes, including animals, characters from Chin
 
 Paper cutting styles differ across China. In the North, designs tend to be bold and straightforward, while in the South, they are typically more detailed and delicate. Key centers for paper cutting in Northern China include Hebei, Shanxi, and Shaanxi provinces. In the South, Guangdong, Jiangsu, and Zhejiang provinces are prominent. This exhibition features paper cuts primarily collected during the 1960s and 1970s from various regions, showcasing the diversity and global influence of this traditional Chinese art form.
 
+[![Watch the Video Tutorial](https://img.youtube.com/vi/U9Ze6aQYDDY/0.jpg)](https://www.youtube.com/watch?v=U9Ze6aQYDDY)
 
 
 ## Styles 
@@ -138,11 +139,14 @@ Collaborate to create unique window flowers.
 Share the meaning and symbolism of your chosen designs with your partner.
 
 ## Additional Resources
-- [![Watch the Video Tutorial](https://img.youtube.com/vi/GGJ9vRq2d9g/0.jpg)](https://www.youtube.com/watch?v=GGJ9vRq2d9g)
-- [![Watch the Video Tutorial](https://img.youtube.com/vi/U7ktLe8s6NE/0.jpg)](https://www.youtube.com/watch?v=U7ktLe8s6NE)
-- [![Watch the Video Tutorial](https://img.youtube.com/vi/e0BY80nrmmU/0.jpg)](https://www.youtube.com/watch?v=e0BY80nrmmU)
-- [![Watch the Video Tutorial](https://img.youtube.com/vi/U9Ze6aQYDDY/0.jpg)](https://www.youtube.com/watch?v=U9Ze6aQYDDY)
-- - [UNESCO: Chinese Paper Cutting](https://ich.unesco.org/en/RL/chinese-paper-cut-00219)
+
+ [![Watch the Video Tutorial](https://img.youtube.com/vi/GGJ9vRq2d9g/0.jpg)](https://www.youtube.com/watch?v=GGJ9vRq2d9g)
+  
+ [![Watch the Video Tutorial](https://img.youtube.com/vi/U7ktLe8s6NE/0.jpg)](https://www.youtube.com/watch?v=U7ktLe8s6NE)
+  
+ [![Watch the Video Tutorial](https://img.youtube.com/vi/e0BY80nrmmU/0.jpg)](https://www.youtube.com/watch?v=e0BY80nrmmU)
+  
+ [UNESCO: Chinese Paper Cutting](https://ich.unesco.org/en/RL/chinese-paper-cut-00219)
 
 
 
