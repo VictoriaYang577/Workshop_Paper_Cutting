@@ -18,7 +18,7 @@ The Tang Dynasty marked the golden age of paper cutting, coinciding with a flour
 
 Today, paper cutting covers many themes, including animals, characters from Chinese opera, plants, deities, landscapes, and folklore. Symbolism is central to these designs, often representing good luck, happiness, and longevity. The Chinese character "福" symbolizes happiness and fortune, while images of children, lotus flowers, and gourds signify family prosperity. Tortoise patterns stand for longevity, and various birds and animals are common motifs.
 
-Paper cutting styles differ across China. In the North, designs tend to be bold and straightforward, while in the South, they are typically more detailed and delicate. Key centers for paper cutting in Northern China include Hebei, Shanxi, and Shaanxi provinces. In the South, Guangdong, Jiangsu, and Zhejiang provinces are prominent. This exhibition features paper cuts primarily collected during the 1960s and 1970s from various regions, showcasing the diversity and global influence of this traditional Chinese art form.
+Paper cutting styles differ across China. In the North, designs tend to be bold and straightforward, while in the South, they are typically more detailed and delicate. Key centers for paper cutting in Northern China include Hebei, Shanxi, and Shaanxi provinces. In the South, Guangdong, Jiangsu, and Zhejiang provinces are prominent. 
 
 [![Watch the Video Tutorial](https://img.youtube.com/vi/U9Ze6aQYDDY/0.jpg)](https://www.youtube.com/watch?v=U9Ze6aQYDDY)
 
